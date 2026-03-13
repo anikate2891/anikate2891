@@ -1,5 +1,5 @@
 # Hi, I'm Anikate Kanoo
-**A Future Full Stack Developer || React Developer || Backend Developer**
+**Full Stack Developer || MERN Stack Developer || Backend Developer**
 
 Email Me 👉 ✉️ **anikate955@gmail.com** For Project or Anything Else.
 
